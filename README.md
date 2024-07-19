@@ -1,4 +1,4 @@
-### Hi! 	:v:
+Hi! :v:
 
 My name is Will, an HR/People Operations professional, with a background in Technical Recruiting and Technical Consulting.
 
